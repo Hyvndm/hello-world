@@ -13,3 +13,6 @@ like some emotions, we try to express them with language but its not always enou
 some feelings can overwhelm you but tying to express them with words feels not enough
 and even if you can express them to your liking, others beside you will have their own judgements
 Sometimes discords create more pain then the initial feelings
+and also they create doubts and mists where you cant find youor own way with given words
+Lacan said not whole thruth can be expressed.. i agree with him 
+
