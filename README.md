@@ -15,4 +15,7 @@ and even if you can express them to your liking, others beside you will have the
 Sometimes discords create more pain then the initial feelings
 and also they create doubts and mists where you cant find youor own way with given words
 Lacan said not whole thruth can be expressed.. i agree with him 
-
+it is nearly impossible to even get close to it
+even within yourself there is brakes and stops, some consious some uncounsicous 
+that is why you need to let go of everything to be really free
+diogenes got that right
